@@ -1,0 +1,1 @@
+# ertan-sinan-sahin-fizik-kutuphanesi-xkqn6yqo
